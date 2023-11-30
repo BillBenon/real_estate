@@ -16,3 +16,5 @@ Now you have come to the solution😎, using this application will make it much 
 
 
 Thanks for having a look!💯
+
+[Buy me a coffee] (https://www.buymeacoffee.com/billbenon 'Support my projects').
